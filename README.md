@@ -1,4 +1,4 @@
-## Portfolio:
+## Portfoilo:
 (https://mahboobrasheed.github.io/Portfoilo)
 
 ## 🌐 Socials:
